@@ -65,3 +65,9 @@ function spin() {
 
 </body>
 </html>
+I am playing on Yono Slots India's #1 skilled gaming app. 
+ Join me on Yono Slots & start winning Real Cash Prizes today! 
+ 1️⃣ Get a Joining bonus of ₹11 free 
+ 2️⃣ Get a 7days login bonus of ₹80 free 
+ 3️⃣ 200% cashback on first deposit 
+ Enjoying Rummy,LUDO,Poker and 30+games with me. Click the link to download:  https://www.uonoslots.com/?code=V91JSKJKRYF&t=1780725906
